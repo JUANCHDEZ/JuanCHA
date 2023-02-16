@@ -1,4 +1,4 @@
-# JuanCHA
+# JUANCHDEZ
 ### Gracias por visitarme 
 
 Estudiante de Ing. Sistemas Computacionales Juan Carlos Hdez A. :bowtie:
